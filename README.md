@@ -1,3 +1,4 @@
+<img width="1750" height="1199" alt="images_0d6ef053-13bb-4d" src="https://github.com/user-attachments/assets/4fe4b409-9faa-4f8a-b5b5-d09bc6e61246" />
 # AI-development-and-game-development-team.-Home-of-Angra.
 Hay im Bardiya Shokri and this is what i wanth to do .AI development and game development team. Home of Angra.
 <div align="center">
